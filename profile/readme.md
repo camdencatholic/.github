@@ -1,1 +1,1 @@
-![CCHS with Seal](https://www.camdencatholic.org/wp-content/uploads/2022/01/option-2-768x369.png)
+![CCHS with Seal](https://cmsv2-assets.apptegy.net/uploads/13360/logo/14885/CC-logo-new.png)
